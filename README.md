@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey I'm Alley 👋
 
  :cancer:🌞 · :aquarius: 🌒 · ♍︎ :point_up:
 
